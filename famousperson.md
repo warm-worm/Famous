@@ -1,5 +1,5 @@
 ### Ella Purnell
-![image_of_EllaPurnell](https://api.curtisbrown.co.uk/media/61880/show/square)
+![image_of_EllaPurnell](https://api.curtisbrown.co.uk/media/61880/show/square)  
 **Ella Summer Purnell** (born 17 September 1996) is an English actress best known for her roles as Jackie in the Showtime drama series _Yellowjackets_, Jinx in the Netflix animated television series _Arcane_, and Gwyn in the Paramount+/Nickelodeon animated series _Star Trek: Prodigy_.  
 
 **Ella Purnell's life:**
